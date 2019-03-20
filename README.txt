@@ -1,0 +1,1 @@
+I had some issues with SQL when trying to complete this task but tried to work around this. I will be ahppy to talk about my work in the interview.
